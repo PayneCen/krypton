@@ -1,1 +1,0 @@
-欢迎来到 [Payne's Web](https://ikrypton.cn)
